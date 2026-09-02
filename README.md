@@ -1,1 +1,1 @@
-# cb2330-portfolio
+# Ernesto Bandala Carreon from CB2330 class
